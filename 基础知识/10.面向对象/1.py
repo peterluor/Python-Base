@@ -1,0 +1,1 @@
+KFC Crazy Thursday need $50
